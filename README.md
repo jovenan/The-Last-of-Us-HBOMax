@@ -1,1 +1,1 @@
-# The-Last-of-Us-HBOMax
+# The Last of Us HBOMax
